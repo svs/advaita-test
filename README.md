@@ -3,7 +3,7 @@ Its that time of the year again friends!
 Now of course there are those amongst you that have already finished your AOPs for the coming year. You, my imaginary friend, were also the kid in school who'd arrive for the first day of second term with all the homework already done during the Diwali Holidays. To you, I have nothing to say. In fact, please get in touch there's a guest post I'd like you to write. For the rest of you lazy lowlifes, I know most of you were hustling till the very last hour of the last day of the last week of the last quarter of the financial year and will only just now be beginning your annual planning exercises – that is if you plan at all. This post is for you all.
 
 
-For you and your hapless colleagues who're either sleep-walking through planning exercises, using it as political battlegrounds or engaging in performative planning, giving a false sense of certainty about the goals when you yourself are confused and divided inside.
+I actually hate you guys. Bye bye forever
 
 But planning is boring.
 Agreed. But why? Maybe you're doing it wrong?
